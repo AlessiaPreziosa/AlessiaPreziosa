@@ -9,6 +9,6 @@
 
 📫 How to reach me: a.preziosa2@studenti.poliba.it
 
-💼 CV: urly.it/3116qp
+💼 CV: urly.it/3116qp 
 
 😄 Pronouns: she/her
