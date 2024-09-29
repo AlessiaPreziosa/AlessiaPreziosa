@@ -9,6 +9,6 @@
 
 📫 How to reach me: a.preziosa2@studenti.poliba.it
 
-💼 CV: https://europa.eu/europass/eportfolio/api/eprofile/shared-profile/alessia-preziosa/d52d7f9a-c4ad-48fc-b347-3ce090d0f7e0?view=html 
+💼 CV: urly.it/3116qp
 
 😄 Pronouns: she/her
